@@ -18,6 +18,6 @@ Dokidoki forever! 💗💗💗
 ### 玩家圣地
 
 QQ群：
-【[Rxsend] dokidoki服务器①】：https://qm.qq.com/q/jHxgqs0T3a
+[【[Rxsend] dokidoki服务器 1群】](https://qm.qq.com/q/jHxgqs0T3a)
 
 <img width="284" height="583" alt="5acc897615f7ef7bd0abed0435f2e3e9" src="https://github.com/user-attachments/assets/bccf0345-2190-4463-afb7-3d79ed8cad20" />
