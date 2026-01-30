@@ -4,7 +4,7 @@
 专注于 Rxs端 SCP 的 Gmod 社区服务器，扑通扑通的心动冒险从这里开始～🌸✨
 
 ### 我们的小秘密基地
-- 🌐 服务器官网：https://dokidoki.g.bqiu.ygld.net （施工中）
+- 🌐 服务器官网：https://dokidoki.bqiu.ygld.net （施工中）
 - 📧 联系邮箱：hi@dokidoki.bqiu.net
 - 📍 来自中国的心跳信号  
 
